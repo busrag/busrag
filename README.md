@@ -1,4 +1,4 @@
-                                          ☆⌒ Hi, I’m Büşra Gülnişah! ⌒☆ 
+                                                       ☆⌒ Hi, I’m Büşra Gülnişah! ⌒☆ 
 
 
 
